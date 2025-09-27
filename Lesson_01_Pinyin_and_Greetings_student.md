@@ -77,10 +77,10 @@
 
 **练习例子 | Practice Example:**
 用"ma"练习四个声调 (Practice four tones with "ma"):
-- mā (妈 mother)
-- má (麻 hemp) 
-- mǎ (马 horse)
-- mà (骂 scold)
+- mā (妈)
+- má (麻) 
+- mǎ (马)
+- mà (骂)
 
 ### 第16-25分钟：基本问候语教学 | Minutes 16-25: Basic Greetings Teaching
 
